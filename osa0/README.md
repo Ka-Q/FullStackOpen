@@ -1,0 +1,1 @@
+# Osan 0 tehtävät tässä hakemistossa
